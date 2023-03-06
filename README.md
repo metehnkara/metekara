@@ -1,4 +1,2 @@
 - 👋 Hi, I’m Metehan Kara
 - 👀 I’m Product and Web Designer
-- 🌱 I am currently learning Design
-- 📫 Contact For Me : meteh4nkara@gmail.com
