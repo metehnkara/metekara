@@ -1,2 +1,1 @@
-- 👋 Hi, I’m Metehan Kara
-- 👀 I’m Product and Web Designer
+
